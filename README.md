@@ -1,16 +1,19 @@
-## Hi there 👋
+  <div align="center"> 
+      ^. .^
+      <div align="center"> 
+ <img src="https://dividers.crd.co/assets/images/gallery04/dc7fd7d9.gif?v=05d33f91.gif">
+      <div align="center">  
+ aku/ryuu/cherubim ✚ ₊ he/pup ∔ poly && achillean
+      <div align="center">  
+      tkn by my abuser . c+h welcomed
+ <div align="center">  
+ darkship  ⎯⎯͟͟♥︎̼̻  anti harassment ┈ ✦ ttgs please
+    <div align="center">  
+ <img src="https://dividers.crd.co/assets/images/gallery04/fbfbf767.gif?v=05d33f91.gif">
+     <div align="center"> 
+     <img src="https://media1.tenor.com/m/zYNgHBAblQYAAAAC/akutagawa-odasaku.gif" width="200" height="200%"/>
 
-<!--
-**ODAAKU/ODAAKU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    
+ <div align="center">                 <img src="https://readme-typing-svg.demolab.com?font=Manrope&size=12&duration=3000&pause=750&color=8B9A9C&background=f6b2be600&width=435&lines=will+this;be+my+year?;maybe+not." alt="Typing SVG" />
